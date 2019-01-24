@@ -1,2 +1,5 @@
 # neo-cromulent-reticulation
-Unambiguous cromulence
+
+Unambiguous Cromulence for the Proletariat
+
+A digital abbatoir and sausage factory...
